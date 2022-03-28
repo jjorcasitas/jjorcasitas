@@ -1,6 +1,6 @@
 - 👋 Hola. Soy Juanjo Orcasitas
 - 👀 Mis intereses son muchas y muy variados. Soy de gustos más bien eclécticos.
-- 🌱 Estoy aprendiendo cosas nuevas y al paso que voy la víspera de mi jubilación seguiré haciéndolo
+- 🌱 Estoy aprendiendo cosas nuevas y al paso que voy la víspera de mi jubilación seguiré haciéndolo 😜
 - 💞️ Posiblemente acabe colgando código para mis alumnos aquí
 - 📫 Podéis encontrarme en el instituto Elorrieta Errekamari de Bilbao
 
